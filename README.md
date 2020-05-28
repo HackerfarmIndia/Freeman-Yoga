@@ -96,7 +96,7 @@ twisted half moon
 Come to sitting
 ### Forward Bend
 ### Reverse Plank
-### Ride side plank
+### Right side plank
 ### Left side plank
 ### Half Plank
 10 breaths
@@ -153,8 +153,8 @@ REST in Shavasana
 
 ### Engage Moolabandha hold 10 breaths
 vajroli on inhale (constrict the urethra) relax on exhale,
-Moolabandha on inhale relax on exhale,
-Ashwini on inhale relax on exhale,
+Moolabandha on inhale, relax on exhale,
+Ashwini on inhale, relax on exhale,
 Moolabandha hold 10 breaths
 
 ### Breath of Fire
